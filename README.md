@@ -1,4 +1,4 @@
-### Hello Dear 👋 I'm Cayque 
+### Hello dear 👋, I'm Cayque 
 
 
 
